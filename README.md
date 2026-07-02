@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @foxtrott49,
-- 👀 I’m interested in music and fps games.
+- 👀 I like metal and vocaloid music. Anything that's uplifting, really.
 - 🌱 I’m currently learning. Yeah, I'm learning.
-- 💞️ I’m looking to not collaborate. I barely even know coding and I don't even know why am I here.
-- 📫 How to reach me is to not trying to reach me. And if you somehow found me, congratulations and I won't even read or hear your message.
-- 😄 Pronouns: He/His/Him
-- ⚡ I sometimes have good and bad humor.
+- 💞️ I’m looking to not collaborate. I barely even know coding and I don't even know why I'm here.
+- 📫 Don't bother reaching out to me. I won't read it anyways.
+- 😄 He/His/Him. I don't mind to be called anything. Go ahead and call me a slur, I don't mind. Unless it's derogatory.
+- ⚡ Am also a geek. Guns, WW2, game lores, a lot of things.
 
 <!---
 foxtrott49/foxtrott49 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
